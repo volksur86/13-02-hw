@@ -24,6 +24,9 @@
 
 Решение 2
 
+<img width="1392" height="1125" alt="image" src="https://github.com/user-attachments/assets/9246ff23-8900-4885-b06a-4be632d08dbb" />
+
+
 
 
 Дополнительные задания (со звёздочкой*)
