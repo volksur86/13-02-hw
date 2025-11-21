@@ -9,6 +9,15 @@
 
 Решение 1
 
+<img width="878" height="960" alt="image" src="https://github.com/user-attachments/assets/41fc4257-fff8-4213-ba18-880e21b920a9" />
+
+<img width="1109" height="420" alt="image" src="https://github.com/user-attachments/assets/3187b43e-c8f9-4eff-bb67-f9dcdfd56451" />
+
+
+
+
+
+
 
 
 
