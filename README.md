@@ -13,13 +13,7 @@
 
 <img width="1109" height="420" alt="image" src="https://github.com/user-attachments/assets/3187b43e-c8f9-4eff-bb67-f9dcdfd56451" />
 
-
-
-
-
-
-
-
+<img width="1483" height="643" alt="image" src="https://github.com/user-attachments/assets/42a36525-3ef2-47e7-b880-2bbed5927e69" />
 
 Задание 2
 
